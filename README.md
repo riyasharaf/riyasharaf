@@ -9,7 +9,6 @@
 
 - 📫 How to reach me **riyasharaf66@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1gTn5r_KLFEvwWyT1oK6pOkpwidJads9O/view?usp=drivesdk](https://drive.google.com/file/d/1gTn5r_KLFEvwWyT1oK6pOkpwidJads9O/view?usp=drivesdk)
 
 - ⚡ Fun fact **I think I can do everything.**
 
